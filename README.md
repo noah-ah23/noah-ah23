@@ -1,9 +1,9 @@
 - Welcome to my profile -
 
-🔮 Looking into the future i see nothing
-🏆 Award winning Actor
-⌚ Watching You
-🟩 600k on mcpedl
+- 🔮 Looking into the future i see nothing
+- 🏆 Award winning Actor
+- ⌚ Watching You
+- 🟩 600k on mcpedl
 
 
 
